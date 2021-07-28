@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @004jason
-- 👀 I’m interested in dearh uwu
-- 🌱 I’m currently learning to not kill myself
-- 💞️ I’m looking to collaborate on group therapy
+- 👀 I’m interested in death uwu
+- 🌱 I’m currently trying to not kill myself
+- 💞️ I’m looking forward to collaborate on group therapy
 - 📫 How to reach me scream free food and im ther in about 3 min
 
 <!---
